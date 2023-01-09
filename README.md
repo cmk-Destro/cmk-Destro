@@ -15,7 +15,6 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **psousa@student.42porto.com**
 
 - 📄 Know about my experiences [idk any](idk any)
 
